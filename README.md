@@ -1,2 +1,2 @@
 # Impressions
-Impressions
+impressions.ai
