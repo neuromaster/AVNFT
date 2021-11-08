@@ -1,2 +1,2 @@
-# Impressions
+# impressions
 impressions.ai #NFT
